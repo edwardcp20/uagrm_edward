@@ -1,0 +1,7 @@
+FECHA:05/09/2019
+
+QUE HICE HASTA AHORA? Crear mi repositorio
+
+QUE ARE HOY?
+
+COMO LO HARE?
