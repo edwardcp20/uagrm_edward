@@ -8,3 +8,4 @@ QUE ARE HOY?
 Documentar.
 
 COMO LO HARE?
+Utilizando el programa Microsoft Word.
